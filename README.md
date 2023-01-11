@@ -4,7 +4,7 @@ THE ALL-GENDERS SIGN
 UN Women and Serviceplan partner to promote gender equality in the Arabic language
 
 
-![ServiceplanHealth_Life_UNWomen_AllGendersSign](https://user-images.githubusercontent.com/119879285/211744133-b30b22cf-ce74-48af-9ebd-bb8479adfca7.jpg)
+![All_Genders_Sign](https://user-images.githubusercontent.com/119879285/211754025-ba938cfa-24aa-408b-b67d-07d00fa47476.jpg)
 Arabic is a grammatically gendered language. However, the male case is often used by default, even in job advertisements that are in fact aimed at all jobseekers. In order to raise awareness on the importance of gender inclusiveness in communication, particularly in the world of work, UN Women and creative agency Serviceplan Health & Life are partnering in an advocacy campaign proposing a new Arabic character: the “All-Genders Sign” which makes it possible to include everyone. The campaign is launching today on the occasion of International Women’s Day.
 
 
