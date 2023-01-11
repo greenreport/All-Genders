@@ -15,3 +15,19 @@ Launched today to mark International Women’s Day, the campaign will be publici
 “UN Women recognizes that language is a powerful tool and has a critical role to play in fighting gender bias and promoting gender-inclusiveness in all contexts and at all times. We commend Serviceplan for highlighting the often-neglected nuances and raising awareness with this campaign to enhance the usage of gender-inclusive language that values all individuals equally, and which helps to end harmful gender stereotypes, particularly in the world of work,” says Susanne Mikhail Eldhagen, UN Women Regional Director for the Arab States.  
 
 “Our aim was to develop an easily comprehensible character that can be simply integrated into Arabic script. We are proud to promote this important issue together with UN Women and hope that, with the development of this small typographical symbol, we can have a major impact on Arabic-speaking society,” states Matthias Jester-Pfad, Creative Director at Serviceplan Health & Life.
+
+#IWD2022
+#InclusiveCommunication
+
+Media contacts:
+UN Women Regional Office for the Arab States
+
+Diego De La Rosa
+Regional Communications Specialist
+Diego.delarosa(@)unwomen.org
+Nourhan ElNagdy
+Regional Communications Associate
+Nourhan.elnagdy(@)unwomen.org
+ 
+About UN Women:
+UN Women is the United Nations entity dedicated to gender equality and the empowerment of women. A global champion for women and girls, UN Women was established to accelerate progress on meeting their needs worldwide.
