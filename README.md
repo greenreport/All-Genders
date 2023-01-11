@@ -1,10 +1,16 @@
 # All-Genders
-THE ALL-GENDERS SIGN
+ALL-GENDERS FONT (by Rassam Abdo Naji Alawdi)
+
+This Font (3 Styles) is free for personal and commercial use. 
+
+And this is how it works: Download the All-Genders Font and enter the key combination (Shortcut) after a male ending.
+
+![All_Genders Sign_1](https://user-images.githubusercontent.com/119879285/211786527-761556b5-4a20-4078-9382-795f6a2c8c44.jpg)
+![All_Genders Sign_2](https://user-images.githubusercontent.com/119879285/211786539-dea7808d-f71d-4c10-99af-c3359b451269.jpg)
+![All_Genders Sign_3](https://user-images.githubusercontent.com/119879285/211786536-c2ba6ff4-1800-46dd-9282-fa226afbc678.jpg)
 
 UN Women and Serviceplan partner to promote gender equality in the Arabic language
 
-
-![All_Genders_Sign](https://user-images.githubusercontent.com/119879285/211754025-ba938cfa-24aa-408b-b67d-07d00fa47476.jpg)
 Arabic is a grammatically gendered language. However, the male case is often used by default, even in job advertisements that are in fact aimed at all jobseekers. In order to raise awareness on the importance of gender inclusiveness in communication, particularly in the world of work, UN Women and creative agency Serviceplan Health & Life are partnering in an advocacy campaign proposing a new Arabic character: the “All-Genders Sign” which makes it possible to include everyone. The campaign is launching today on the occasion of International Women’s Day.
 
 
