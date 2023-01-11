@@ -23,10 +23,15 @@ Media contacts:
 UN Women Regional Office for the Arab States
 
 Diego De La Rosa
+
 Regional Communications Specialist
+
 Diego.delarosa(@)unwomen.org
+
 Nourhan ElNagdy
+
 Regional Communications Associate
+
 Nourhan.elnagdy(@)unwomen.org
  
 About UN Women:
